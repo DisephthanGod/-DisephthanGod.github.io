@@ -1,1 +1,1 @@
-# -DisephthanGod.github.io
+# DisephthanGod.github.io
